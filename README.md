@@ -1,1 +1,0 @@
-# SDAJ-EGE
